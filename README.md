@@ -1,0 +1,1 @@
+# padroesprojeto-ada_bri
